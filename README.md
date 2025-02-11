@@ -1,1 +1,0 @@
-# GolvarTV-reklam-kaldirma
